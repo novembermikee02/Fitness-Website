@@ -17,4 +17,5 @@ If you have any feedback, please reach out to us at contact@webiyor.com
 ## 🚀 About Me
 I'm a full stack developer...
 
-![screencapture-novembermikee02-github-io-Fitness-Website-2023-01-09-16_47_31](https://user-images.githubusercontent.com/61339435/211296498-7ef47d0e-f08f-4e22-8d2e-fe7f78228888.png)
+
+![Web capture_9-1-2023_16498_127 0 0 1](https://user-images.githubusercontent.com/61339435/211296718-1afbf087-260a-4f75-a5d5-b72a898105c1.jpeg)
